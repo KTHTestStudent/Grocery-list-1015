@@ -1,13 +1,20 @@
 # Grocery-list-1015
-Bogo
-Chicken breast
-Space dust bogo
-String cheese bogo
-Bogo raos
-Bogo Pasta sauce 
-Tyson chicken bogo
-Tide bogo
-Bogo bread
+Bogo Publix Chicken breast (not needed0
 
-Mouthwash
-Yogurt
+Bogo Space Dust (not needed)
+
+Bogo Tide (not needed)
+
+Bogo String Cheese
+
+Bogo Rao's Pasta
+
+Bogo Classico Pasta sauce 
+
+Bogo frozen Tyson Chicken
+
+Bogo bread (several brands and kinds just pick some)
+
+Crest Pro Health Mouthwash
+
+Yogurt (get a bogo if there is one or otherwise plain publix 0% fat green yogurt)
